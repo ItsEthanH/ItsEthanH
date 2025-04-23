@@ -42,5 +42,5 @@
     -   🥊 Kickboxing (Purple Belt)
     -   🥋 Brazilian Jiu-Jitsu (White Belt - still new!)
     -   💪 Calisthenics (PBs: BW Muscle Up/32.5kg Chinup/40kg Dip/110kg Squat)
--   🌍 If I'm not training, I'm travelling. My most recent excursion was to **🇪🇸 Barcelona, Spain**
+-   🌍 If I'm not training, I'm travelling. My most recent excursion was to **🏝️ the Caribbean**
 -   🐕 If I'm not doing any of that, I'm a proud dog owner to Jet - my 9-year-old whippet
